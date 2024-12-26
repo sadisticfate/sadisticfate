@@ -2,7 +2,7 @@
 
 ───── ⋆⋅☆⋅⋆ ─────
 
-ᶻ 𝗓 𐰁 . Info :: Genderfluid , 15 , INTP ,  Apathetic (sometimes) , Persian-Canadian
+ᶻ 𝗓 𐰁 . Info :: Genderfluid , 15+ , INTP ,  Apathetic (sometimes) , Persian-Canadian
 
 ! Likes ,  ᯓ★  Psychology , Anything “liminal” ,  Astronomy / Space , Tea / Boba 
 
