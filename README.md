@@ -1,2 +1,1 @@
-Wip 
-I go by moxie idc what u call me
+![WIP](https://files.catbox.moe/vsf481.png)
